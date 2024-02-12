@@ -1,5 +1,9 @@
+<p align="center" width="100%">
+    <img width="33%" src="https://i.pinimg.com/originals/91/ed/2b/91ed2bc01aa85ec1d82e21fb178fadbe.gif">
+</p>
 
-
+<p align="center">
+oOoOo write on our guestbook oOoOo DO IT doooOoFOOOO it
 
  <p align="center">
  DNI
@@ -20,7 +24,7 @@
  -  if ur under the age of 15 ^^
 
 <p align="center" width="100%">
-    <img width="33%" src="https://i.imgur.com/VA0haEx.gif">
+    <img width="33%" src="https://i.pinimg.com/originals/9e/a8/9b/9ea89bd57315c693f415776cfb5a4ca1.gif">
 </p>
 
                                    
@@ -35,7 +39,15 @@ BYI
 -  we are a system. we don't normally talk too much about it unless we're close with someone though 
                 <p align="center">
 -  we say RECLAIMABLE slurs and oftentimes make kys jokes but we will lay off of saying them if it goes against someones boundaries :D
+                                 <p align="center">
+- very sensitive in terms of mean / hurtful comments so reminder to please use tonetags when joking around like that :)
+                <p align="center">
+                - if we don't reply to you then it's likely we're either asleep or afk. sometimes we may not reply entirely but i swear its just because we're probably busy
+                                <p align="center">
+                                - we act REALLY childish at times !! 
+                 
 </p>
 
-
- 
+<p align="center" width="100%">
+    <img width="33%" src="https://78.media.tumblr.com/43067442e5f34e6d37b33716de2518fd/tumblr_onq1mrvjXL1sbfdvgo1_500.gif">
+</p>
