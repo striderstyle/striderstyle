@@ -3,7 +3,8 @@
 </p>
 
 
- ## dni
+ <p align="center">
+ DNI
 
  <p align="center">
  -  endogenic systems / supporters
@@ -20,7 +21,8 @@
                                <p align="center">
  -  if ur under the age of 15 ^^
                                    
-## byi
+ <p align="center">                                
+BYI
 
  <p align="center">
 -  please use tonetags with me if i don't know you that well or if we've just met !!
