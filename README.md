@@ -38,13 +38,13 @@ BYI
            <p align="center">
 -  we are a system. we don't normally talk too much about it unless we're close with someone though 
                 <p align="center">
--  we say RECLAIMABLE slurs and oftentimes make kys jokes but we will lay off of saying them if it goes against someones boundaries :D
+-  we say RECLAIMABLE slurs but will stop if its against peoples boundaries
                                  <p align="center">
 - very sensitive in terms of mean / hurtful comments so reminder to please use tonetags when joking around like that :)
                 <p align="center">
                 - if we don't reply to you then it's likely we're either asleep or afk. sometimes we may not reply entirely but i swear its just because we're probably busy
                                 <p align="center">
-                                - we act REALLY childish at times !! 
+                                - how we act really depends on how you may act towards us. if you're rude and insensitive we'll be rude and insensitive to you, you know what i mean right? :3 BUT normally we're actually really chill and wholesome, despite the fact that we say RECCLAAIMABLEEE slurs, sometimes, BUT JOKINGLY, it's never meant to be in mean way okaee
                  
 </p>
 
