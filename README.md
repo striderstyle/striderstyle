@@ -1,6 +1,4 @@
-<p align="center" width="100%">
-    <img width="33%" src="https://78.media.tumblr.com/43067442e5f34e6d37b33716de2518fd/tumblr_onq1mrvjXL1sbfdvgo1_500.gif">
-</p>
+
 
 
  <p align="center">
@@ -20,6 +18,11 @@
  -  if ur a homophobic, racist bigoted asshole!! or anything alike ^^
                                <p align="center">
  -  if ur under the age of 15 ^^
+
+<p align="center" width="100%">
+    <img width="33%" src="https://i.imgur.com/VA0haEx.gif">
+</p>
+
                                    
  <p align="center">                                
 BYI
@@ -34,7 +37,5 @@ BYI
 -  we say RECLAIMABLE slurs and oftentimes make kys jokes but we will lay off of saying them if it goes against someones boundaries :D
 </p>
 
-<p align="center" width="100%">
-    <img width="33%" src="https://i.redd.it/by6ufhmy34vb1.gif">
-</p>
+
  
