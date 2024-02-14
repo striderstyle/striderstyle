@@ -1,4 +1,4 @@
-<p align="center" width="100%">
+<p align="center" width="400%">
     <img width="33%" src="https://cdn.discordapp.com/attachments/1128227441723314266/1130551195853914193/grey_gradient_1.png">
     
 <p align="center" width="100%">
