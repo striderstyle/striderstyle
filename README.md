@@ -22,6 +22,8 @@ oOoOo write on our guestbook oOoOo DO IT doooOoFOOOO it
  -  if ur a homophobic, racist bigoted asshole!! or anything alike ^^
                                <p align="center">
  -  if ur under the age of 15 ^^
+ <p align="center">
+ !! feel free to hide me if you apply to any of the dni :3 !!
 
 <p align="center" width="100%">
     <img width="33%" src="https://i.pinimg.com/originals/9e/a8/9b/9ea89bd57315c693f415776cfb5a4ca1.gif">
