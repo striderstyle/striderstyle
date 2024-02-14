@@ -47,6 +47,4 @@ BYI
                  
 </p>
 
-<p align="center" width="100%">
-    <img width="33%" src="https://78.media.tumblr.com/43067442e5f34e6d37b33716de2518fd/tumblr_onq1mrvjXL1sbfdvgo1_500.gif">
-</p>
+
