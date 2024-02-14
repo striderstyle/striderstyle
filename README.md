@@ -23,7 +23,7 @@
  !! feel free to hide me if you apply to any of the dni :3 !!
 
 <p align="center" width="100%">
-    <img width="33%" src="https://i.pinimg.com/originals/9e/a8/9b/9ea89bd57315c693f415776cfb5a4ca1.gif">
+    <img width="33%" src="https://cdn.discordapp.com/attachments/1141217508792213534/1148006154744631447/5EBA5B49-E347-4A24-A1B6-CFAF4E60B0C7.gif?ex=64fa4cb1&is=64f8fb31&hm=630309f96273547ce055c4539af0aa88bfbfe27071335b54fa23a47f69ffc9cc&"?>
 </p>
 
                                    
