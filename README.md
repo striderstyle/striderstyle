@@ -1,6 +1,7 @@
 <p align="center" width="100%">
     <img width="33%" src="https://github.com/striderstyle/striderstyle/assets/159402904/171ee636-f49f-48f9-a1bd-d82b5b9950c5">
 </p>
+> i drew this :)
 
 
 
