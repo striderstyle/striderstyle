@@ -1,6 +1,8 @@
 <p align="center" width="100%">
-    <img width="33%" src="https://i.pinimg.com/originals/91/ed/2b/91ed2bc01aa85ec1d82e21fb178fadbe.gif">
+    <img width="33%" src="https://github.com/striderstyle/striderstyle/assets/159402904/171ee636-f49f-48f9-a1bd-d82b5b9950c5">
 </p>
+
+
 
 <p align="center">
 oOoOo write on our guestbook oOoOo DO IT doooOoFOOOO it
