@@ -48,6 +48,8 @@ BYI
                                 - how we act really depends on how you may act towards us. if you're rude and insensitive we'll be rude and insensitive to you, you know what i mean right? :3 BUT normally we're actually really chill and wholesome, despite the fact that we say RECCLAAIMABLEEE slurs, sometimes, BUT JOKINGLY, it's never meant to be in mean way okaee
                                  <p align="center">
                                  - idgaf what kind of dramas r going down in the hs pt area DO NOT INVOLVE ME IN THEM whatsoever. i don't care about them and i never will ^o^ i'm js here to make friends hopefully and talk to new people becos thats so fucking rad actually
+                                  <p align="center">
+                                  - i swear a lot! like, a lot a lot. so much. its crazy.
                  
 </p>
 
