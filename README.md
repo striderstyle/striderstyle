@@ -1,5 +1,5 @@
 <p align="center" width="100%">
-    <img width="70%" src="https://wilardo.crd.co/assets/images/gallery05/d1b89f23.gif?v=b62e9456">
+    <img width="70%" src="https://64.media.tumblr.com/672b93756bc2d7601701d95e0a032af1/d5d60631842e5393-66/s540x810/1560cb2324ecf425505ea81dbffd615d08129691.gifv">
 
 <p align="center">
 <img src="https://wilardo.crd.co/assets/images/gallery27/2adffdd1.png?v=b62e9456"/> DNI <img src="https://wilardo.crd.co/assets/images/gallery27/f5721db8.png?v=b62e9456 "/>
@@ -14,7 +14,7 @@
 <img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> proshitters and the like <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
     
 <p align="center">
-<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> dream stans. supporting someone as problematic as him? you should be ashamed <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> dream stans <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
     
 <p align="center">
 <img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> people who judge ponies for not suiting their specific tastes / style <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
@@ -65,4 +65,4 @@
 </p>
 
 <p align="center" width="100%">
-    <img width="70%" src="https://wilardo.crd.co/assets/images/gallery05/d1b89f23.gif?v=b62e9456">
+    <img width="70%" src="https://64.media.tumblr.com/672b93756bc2d7601701d95e0a032af1/d5d60631842e5393-66/s540x810/1560cb2324ecf425505ea81dbffd615d08129691.gif">
