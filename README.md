@@ -1,51 +1,66 @@
 <p align="center" width="100%">
     <img width="70%" src="https://wilardo.crd.co/assets/images/gallery05/1f064075.gif?v=b62e9456">
 
- <p align="center">
- DNI
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery27/2adffdd1.png?v=b62e9456"/> DNI <img src="https://wilardo.crd.co/assets/images/gallery27/f5721db8.png?v=b62e9456 "/>
 
- <p align="center">
- -  endogenic systems / supporters
-      <p align="center">
- -  fakeclaimers
-           <p align="center">
- -  proshitters, etc
-                <p align="center">
- -  dream stans (if u talk to me ill kms /nsrs)
-                     <p align="center">
- -  if you judge someones pony / be randomly rude about a ponies design / style for no reason!!
-                          <p align="center">
- -  if ur a homophobic, racist bigoted asshole!! or anything alike ^^
-                               <p align="center">
- -  if ur under the age of 15 ^^
- <p align="center">
- !! feel free to hide me if you apply to any of the dni :3 !!
-     
-<p align="center" width="100%">
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> endogenic systems / supporters. i dont care if you have a google doc abt why endos are valid, in my eyes you are and never will be valid. full stop. <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> fakeclaimers <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+    
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> proshitters and the like <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+    
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> dream stans. supporting someone as problematic as him? you should be ashamed <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+    
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> people who judge ponies for not suiting their specific tastes / style <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+    
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> genuinely homophobic or racist, bigoted individuals. die. <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+    
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> use tonetags with me if i don't know you that well or if we've just met <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+    
+
+ <p align="center" width="100%">
     <img width="70%" src="https://wilardo.crd.co/assets/images/gallery05/1f064075.gif?v=b62e9456">
+     
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery27/2adffdd1.png?v=b62e9456"/> BYI <img src="https://wilardo.crd.co/assets/images/gallery27/f5721db8.png?v=b62e9456 "/> <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
 
-                                   
- <p align="center">                                
-BYI
 
- <p align="center">
--  please use tonetags with me if i don't know you that well or if we've just met !!
-      <p align="center">
--  we have autism / adhd [both diagnosed professionaly /srs]
-           <p align="center">
--  we are a system. we don't normally talk too much about it unless we're close with someone though 
-                <p align="center">
--  we say RECLAIMABLE slurs but will stop if its against peoples boundaries
-                                 <p align="center">
-- very sensitive in terms of mean / hurtful comments so reminder to please use tonetags when joking around like that :)
-                <p align="center">
-                - if we don't reply to you then it's likely we're either asleep or afk. sometimes we may not reply entirely but i swear its just because we're probably busy
-                                <p align="center">
-                                - how we act really depends on how you may act towards us. if you're rude and insensitive we'll be rude and insensitive to you, you know what i mean right? :3 BUT normally we're actually really chill and wholesome, despite the fact that we say RECCLAAIMABLEEE slurs, sometimes, BUT JOKINGLY, it's never meant to be in mean way okaee
-                                 <p align="center">
-                                 - idgaf what kind of dramas r going down in the hs pt area DO NOT INVOLVE ME IN THEM whatsoever. i don't care about them and i never will ^o^ i'm js here to make friends hopefully and talk to new people becos thats so fucking rad actually
-                                  <p align="center">
-                                  - i swear a lot! like, a lot a lot. so much. its crazy.
+
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> use tonetags with me if i don't know you that well or if we've just met <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+
+    
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> autistic / adhd [professionally diagnosed /srs] <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+
+
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> system /srs <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+
+    
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> we say !! RECLAIMABLE !! slurs. will stop if asked to though <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+
+
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> no reply from us on pt means we're afk. we don't intentionally aim to be rude. if we don't reply after a certain time then we're definitely asleep <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+
+
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> we act kinda childish at times <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+
+
+<p align="center">
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> we don't care what shitty kinds of drama is goin' down in the hs pt area, DO NOT TRY TO INVOLVE US IN IT WHATSOEVER. its not our business and we genuinely don't give two shits about any sorts of drama, kay. <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+
                  
 </p>
 
