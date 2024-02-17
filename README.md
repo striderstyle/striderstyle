@@ -23,7 +23,7 @@
 <img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> genuinely homophobic or racist, bigoted individuals. die. <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
     
 <p align="center">
-<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> use tonetags with me if i don't know you that well or if we've just met <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> mfs who think they allat <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
     
 
  <p align="center" width="100%">
