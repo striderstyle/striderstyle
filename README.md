@@ -1,5 +1,5 @@
 <p align="center" width="100%">
-    <img width="70%" src="https://wilardo.crd.co/assets/images/gallery05/1f064075.gif?v=b62e9456">
+    <img width="70%" src="https://wilardo.crd.co/assets/images/gallery05/d1b89f23.gif?v=b62e9456">
 
 <p align="center">
 <img src="https://wilardo.crd.co/assets/images/gallery27/2adffdd1.png?v=b62e9456"/> DNI <img src="https://wilardo.crd.co/assets/images/gallery27/f5721db8.png?v=b62e9456 "/>
@@ -27,10 +27,10 @@
     
 
  <p align="center" width="100%">
-    <img width="70%" src="https://wilardo.crd.co/assets/images/gallery05/1f064075.gif?v=b62e9456">
+    <img width="70%" src="https://wilardo.crd.co/assets/images/gallery21/1d27222e.gif?v=b62e9456">
      
 <p align="center">
-<img src="https://wilardo.crd.co/assets/images/gallery27/2adffdd1.png?v=b62e9456"/> BYI <img src="https://wilardo.crd.co/assets/images/gallery27/f5721db8.png?v=b62e9456 "/> <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+<img src="https://wilardo.crd.co/assets/images/gallery27/2adffdd1.png?v=b62e9456"/> BYI <img src="https://wilardo.crd.co/assets/images/gallery27/f5721db8.png?v=b62e9456 "/> 
 
 
 
@@ -65,4 +65,4 @@
 </p>
 
 <p align="center" width="100%">
-    <img width="70%" src="https://wilardo.crd.co/assets/images/gallery05/1f064075.gif?v=b62e9456">
+    <img width="70%" src="https://wilardo.crd.co/assets/images/gallery05/d1b89f23.gif?v=b62e9456">
