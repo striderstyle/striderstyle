@@ -2,7 +2,7 @@
 B4 I GO ON I JS WANNA MENTION SUMN!!! To all those messaging me on PT HI!!! I see your messages!! I'm so sorry for never responding it's just normally I'm away from my computer whenever you guys message and when I come back you guys are offline so I can't reply :(( BUT PLS UNDERSTAND I DONT MEAN TO BE RUDE BY NOT REPLYING I JS LEGITIMATELY CANT BCOS I ALWAYS MISS U GUYS!!!! But thank u all for ur reallg kind and sweet messages they genuinely make me smile <33 Feel free to sit w/me if I'm ever away I really don't mind <333
      
 <p align="center" width="100%">
-    <img width="33%" src="https://github.com/striderstyle/striderstyle/assets/159402904/171ee636-f49f-48f9-a1bd-d82b5b9950c5">
+    <img width="33%" src="https://i.postimg.cc/50rfrc0p/73048-F8-C-6-AA9-4825-B63-E-20-B825-A9-F45-C.gif">
 
  <p align="center">
  DNI
