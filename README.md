@@ -39,7 +39,7 @@
 
     
 <p align="center">
-<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> autistic / adhd [professionally diagnosed /srs] <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
+<img src="https://wilardo.crd.co/assets/images/gallery02/b21154a0.gif?v=b62e9456"/> autistic / adhd /srs <img src="https://wilardo.crd.co/assets/images/gallery14/58cdcb69.gif?v=b62e9456"/>
 
 
 <p align="center">
