@@ -2,7 +2,7 @@
 B4 I GO ON I JS WANNA MENTION SUMN!!! To all those messaging me on PT HI!!! I see your messages!! I'm so sorry for never responding it's just normally I'm away from my computer whenever you guys message and when I come back you guys are offline so I can't reply :(( BUT PLS UNDERSTAND I DONT MEAN TO BE RUDE BY NOT REPLYING I JS LEGITIMATELY CANT BCOS I ALWAYS MISS U GUYS!!!! But thank u all for ur reallg kind and sweet messages they genuinely make me smile <33 Feel free to sit w/me if I'm ever away I really don't mind <333
      
 <p align="center" width="100%">
-    <img width="33%" src="https://i.postimg.cc/50rfrc0p/73048-F8-C-6-AA9-4825-B63-E-20-B825-A9-F45-C.gif">
+    <img width="33%" src="https://i.postimg.cc/cCS6hgJ0/C6-BE1-EB8-23-C4-4-DE9-BB48-1-E09-FBDD0607.gif">
 
     > used ult dirk for the pose becos i cant be bothered to draw arms crossed
 
