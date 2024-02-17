@@ -4,6 +4,8 @@ B4 I GO ON I JS WANNA MENTION SUMN!!! To all those messaging me on PT HI!!! I se
 <p align="center" width="100%">
     <img width="33%" src="https://i.postimg.cc/50rfrc0p/73048-F8-C-6-AA9-4825-B63-E-20-B825-A9-F45-C.gif">
 
+    > used ult dirk for the pose becos i cant be bothered to draw arms crossed
+
  <p align="center">
  DNI
 
