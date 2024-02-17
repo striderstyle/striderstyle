@@ -1,14 +1,5 @@
 <p align="center" width="100%">
-    <img width="50%" src="https://wilardo.crd.co/assets/images/gallery05/4e83b748.gif?v=b62e9456">
-
- 
- <p align="center">
-B4 I GO ON I JS WANNA MENTION SUMN!!! To all those messaging me on PT HI!!! I see your messages!! I'm so sorry for never responding it's just normally I'm away from my computer whenever you guys message and when I come back you guys are offline so I can't reply :(( BUT PLS UNDERSTAND I DONT MEAN TO BE RUDE BY NOT REPLYING I JS LEGITIMATELY CANT BCOS I ALWAYS MISS U GUYS!!!! But thank u all for ur reallg kind and sweet messages they genuinely make me smile <33 Feel free to sit w/me if I'm ever away I really don't mind <333
-     
-<p align="center" width="100%">
-    <img width="33%" src="https://i.postimg.cc/cCS6hgJ0/C6-BE1-EB8-23-C4-4-DE9-BB48-1-E09-FBDD0607.gif">
-
-    > used ult dirk for the pose becos i cant be bothered to draw arms crossed
+    <img width="70%" src="https://wilardo.crd.co/assets/images/gallery05/1f064075.gif?v=b62e9456">
 
  <p align="center">
  DNI
@@ -29,10 +20,9 @@ B4 I GO ON I JS WANNA MENTION SUMN!!! To all those messaging me on PT HI!!! I se
  -  if ur under the age of 15 ^^
  <p align="center">
  !! feel free to hide me if you apply to any of the dni :3 !!
-
+     
 <p align="center" width="100%">
-    <img width="33%" src="https://cdn.discordapp.com/attachments/1141217508792213534/1148006154744631447/5EBA5B49-E347-4A24-A1B6-CFAF4E60B0C7.gif?ex=64fa4cb1&is=64f8fb31&hm=630309f96273547ce055c4539af0aa88bfbfe27071335b54fa23a47f69ffc9cc&"?>
-</p>
+    <img width="70%" src="https://wilardo.crd.co/assets/images/gallery05/1f064075.gif?v=b62e9456">
 
                                    
  <p align="center">                                
@@ -59,4 +49,5 @@ BYI
                  
 </p>
 
-
+<p align="center" width="100%">
+    <img width="70%" src="https://wilardo.crd.co/assets/images/gallery05/1f064075.gif?v=b62e9456">
